@@ -30,5 +30,5 @@
     - The political actor, Andrew Yang, proposes something called universal basic income,
       which if implemented under twisted presumptions for partial executive command, would
       actually decimate the citizen middle-class to put them in the same scope as
-      immigrants. The idea of a classless society is really more of a whimsical belief when
-      said idea is tried to put to practice. 
+      newly-arrived immigrants escaping poverty or war. The idea of a classless society
+      is actually a whimsical belief when said idea is tried to put to practice. 
