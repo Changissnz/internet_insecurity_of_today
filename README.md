@@ -19,3 +19,16 @@
   "elites". This implication is debatable but should be assumed to be the expectations
   from conservative ruling classes, especially those that proudly speak of the merits
   of authoritarian excess.
+- Internet Socialism vs National Assets & Private Wealth Accumulation.
+    - Pope Francis' seemingly benevolent political rhetoric, for example, is an
+      acknowledgment of the consistent failures in trying to balance merit systems with
+      conceptualizations of equality and also, the fiat collective looting under
+      "equity" appeals. Merit systems become depressed through institutional mass
+      acceptance. Some are skeptical of universally appealling rhetoric, and some
+      further confirm their biases by what transpired to them, right there in the hometown
+      or nation, under the loose principles encouraged by the "universal".
+    - The political actor, Andrew Yang, proposes something called universal basic income,
+      which if implemented under twisted presumptions for partial executive command, would
+      actually decimate the citizen middle-class to put them in the same scope as
+      immigrants. The idea of a classless society is really more of a whimsical belief when
+      said idea is tried to put to practice. 
