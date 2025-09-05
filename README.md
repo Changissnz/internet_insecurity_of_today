@@ -35,3 +35,10 @@
       if the first thing a society wants is gainful change, varying class-based rigidity
       is always the answer to enable individuals to come forward with solutions of different
       light. 
+- Old people that form gerontocracies are self-absorbed, stuck in their ideology that
+  they formulated during their formative years in the context of their ethno-cultural
+  loyalties, and may prove to be the biggest deterrents towards certain technological
+  integrations. This is not always the case with old people. But when those that can act
+  canot think for themselves, gerontracies are symptomatic of a conservative and pacified
+  populace. Gerontocracies, as well as theocracies, are curious examples of ultra-conservatism
+  meeting the need to adopt and adapt. 
