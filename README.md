@@ -33,5 +33,5 @@
       newly-arrived immigrants escaping poverty or war. The idea of a classless society
       is actually a whimsical belief when said idea is tried to put to practice. However,
       if the first thing a society wants is gainful change, varying class-based rigidity
-      is always the answer to allow for individuals to come forward with solutions of different
+      is always the answer to enable individuals to come forward with solutions of different
       light. 
