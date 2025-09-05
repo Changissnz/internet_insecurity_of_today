@@ -25,7 +25,7 @@
       conceptualizations of equality and also, the fiat collective looting under
       "equity" appeals. Merit systems become depressed through institutional mass
       acceptance. Some are skeptical of universally appealling rhetoric, and some
-      further confirm their biases by what transpired to them, right there in the hometown
+      further confirm their biases by what transpired to them, right there in their hometown
       or nation, under the loose principles encouraged by the "universal".
     - The political actor, Andrew Yang, proposes something called universal basic income,
       which if implemented under twisted presumptions for partial executive command, would
