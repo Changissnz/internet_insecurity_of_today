@@ -13,7 +13,7 @@
 - normalization of internet use has served the objective of catering
   to more needs (digital media itself or digital media platform as conduit
   for exchange and commerce). The advantages that early internet users had
-  consists of greater or better information access and alternative long-distance
+  consist of greater or better information access and alternative long-distance
   communication. Normalization of internet implies these advantages will also shift,
   according to socio-economic status, to remain in exclusive or controlling rights of the
   "elites". This implication is debatable but should be assumed to be the expectations
