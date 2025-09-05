@@ -41,4 +41,4 @@
   integrations. This is not always the case with old people. But when those that can act
   canot think for themselves, gerontracies are symptomatic of a conservatively pacified
   populace. Gerontocracies, as well as theocracies, are curious examples of ultra-conservatism
-  meeting the need to adopt and adapt. 
+  handling the need to adopt and adapt. 
