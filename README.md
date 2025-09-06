@@ -39,6 +39,6 @@
   they formulated during their formative years in the context of their ethno-cultural
   loyalties, and may prove to be the biggest deterrents towards certain technological
   integrations. This is not always the case with old people. But when those that can act
-  canot think for themselves, gerontracies are symptomatic of a conservatively pacified
+  cannot think for themselves, gerontracies are symptomatic of a conservatively pacified
   populace. Gerontocracies, as well as theocracies, are curious examples of ultra-conservatism
   handling the need to adopt and adapt. 
