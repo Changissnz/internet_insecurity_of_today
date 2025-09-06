@@ -42,3 +42,6 @@
   cannot think for themselves, gerontracies are symptomatic of a conservatively pacified
   populace. Gerontocracies, as well as theocracies, are curious examples of ultra-conservatism
   handling the need to adopt and adapt. 
+- The pervasive media and social networking, coupled with declining revenues from Internet
+  activity, imply the preservation of societal stratification under developments that would
+  otherwise be destabilizing.
