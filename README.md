@@ -45,4 +45,6 @@
 - The pervasive media and social networking, coupled with declining revenues from Internet
   activity, imply the preservation of societal stratification under developments that would
   otherwise be destabilizing.
-  
+- Investitures in the Internet is big money. Now that's money! As the internet continues to slow down
+  its growth due to its gargantuan but mostly empty size, most of the money will be spent on government
+  and corporate investigations and less on investing into anything other.
