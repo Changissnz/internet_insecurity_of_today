@@ -48,3 +48,7 @@
 - Investitures in the internet is big money. Now that's money! As the internet continues to slow down
   its growth due to its gargantuan but mostly empty size, most of the money will be spent on government
   and corporate investigations and less on investing into anything other.
+- It is becoming more and more dangerous to empathize with certain individuals. It is foolish to
+  mistake a long piece of red tape for a human being. Even when that red tape dresses up in blue collars,
+  blue stars, blue bloods, it's still red tape. Red tape is STEM's marriage rings, and some rings are
+  rotten like hell.  
