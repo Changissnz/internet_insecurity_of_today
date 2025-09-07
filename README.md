@@ -53,4 +53,6 @@
   blue stars, blue bloods, it's still red tape. Red tape is STEM's marriage rings, and some rings are
   rotten like hell.
 - The issue with the internet in the context of human identity: the internet becomes more of a tool for the
-  identity than a good teacher or friend. 
+  identity than a good teacher or friend. Projects become spottily funded. First, people left the malls and
+  super-marts behind for Amazon. And next, they go on their way in their real-world bubbles, carrying around
+  smart devices enslaved in AI bubbles. 
