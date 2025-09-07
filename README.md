@@ -51,4 +51,6 @@
 - It is becoming more and more dangerous to empathize with certain individuals. It is foolish to
   mistake a long piece of red tape for a human being. Even when that red tape dresses up in blue collars,
   blue stars, blue bloods, it's still red tape. Red tape is STEM's marriage rings, and some rings are
-  rotten like hell.  
+  rotten like hell.
+- The issue with the internet in the context of human identity: the internet becomes more of a tool for the
+  identity than a good teacher or friend. 
