@@ -67,4 +67,4 @@
 - Aggravated command structure. Multi-faceted I/O mechanisms for the internet allow for the intentions of those
   best positioned to be of higher priorities in long lines of considerations. So command structures of wanted design
   can be normalized in practice, and the aggravation experienced by these proceedings is the excess of continuing to
-  attempt optimal state. 
+  attempt optimal state of specific preference.
