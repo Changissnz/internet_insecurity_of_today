@@ -69,5 +69,5 @@
   can be normalized in practice, and the aggravation experienced by these proceedings is the excess of continuing to
   attempt optimal state of specific preference.
 - Expect politics to continue along the lines of "business as usual" on top of "a lot of change and progress".
-- All else being equal, the internet enables owner and leader types to dig their claws into people's brains and backs at
-  more efficient and higher-performing rates.
+- All else being equal, the internet enables owner and leader types to dig their metaphorical claws into people's
+  brains and backs at more efficient and higher-performing rates.
