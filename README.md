@@ -65,4 +65,6 @@
   If the internet were a person, it would be psychosocial. It is techno-social, in actuality, and the psychopathy
   and psychology that so many people say is the internet are actually notions, notions from the human mind.
 - Aggravated command structure. Multi-faceted I/O mechanisms for the internet allow for the intentions of those
-  best positioned to be of higher priorities in long lines of considerations. 
+  best positioned to be of higher priorities in long lines of considerations. So command structures of wanted design
+  can be normalized in practice, and the aggravation experienced by these proceedings is the excess of continuing to
+  attempt optimal state. 
