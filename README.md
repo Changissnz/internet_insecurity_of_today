@@ -56,3 +56,7 @@
   identity than a good teacher or friend. Projects become spottily funded. First, people left the malls and
   super-marts behind for Amazon. And next, they go on their way in their real-world bubbles, carrying around
   smart devices enslaved in AI bubbles. 
+- The greater connectivity offered by present and emerging internet technologies carries the paradox of
+  resource management, especially for matters of pre-empting social arrangements and elevating mediocrity
+  as well as foreignness and fringe persons. The paradox reveals itself at times to individuals, then makes
+  them forget so as to preserve their sanity. 
