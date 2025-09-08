@@ -71,6 +71,6 @@
 - Expect politics to continue along the lines of "business as usual" on top of "a lot of change and progress".
 - All else being equal, the internet enables owner and leader types to dig their metaphorical claws into people's
   brains and backs at more efficient and higher-performing rates.
-- As the industrial rust seeps deeper into Internet 2.0, the prior echoes of calls for change return home from Heaven to live
+- As the industrial rust seeps deeper into Internet 2.0, the echoes of prior calls for change return home from Heaven to live
   in the hearts of human beings in ways so variable that some take the opportunity to portray these forces in mystical and
   mysterious ways.  
