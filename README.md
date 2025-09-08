@@ -68,3 +68,4 @@
   best positioned to be of higher priorities in long lines of considerations. So command structures of wanted design
   can be normalized in practice, and the aggravation experienced by these proceedings is the excess of continuing to
   attempt optimal state of specific preference.
+- Expect politics to continue along the lines of "business as usual" on top of "a lot of change and progress". 
