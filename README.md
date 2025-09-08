@@ -59,4 +59,4 @@
 - The greater connectivity offered by present and emerging internet technologies carries the paradox of
   resource management, especially for matters of pre-empting social arrangements and elevating mediocrity
   as well as foreignness and fringe persons. The paradox reveals itself at times to individuals, then makes
-  them forget so as to preserve their sanity. 
+  them forget so as to preserve their sanity for them to live within today's means. 
