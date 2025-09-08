@@ -59,4 +59,8 @@
 - The greater connectivity offered by present and emerging internet technologies carries the paradox of
   resource management, especially for matters of pre-empting social arrangements and elevating mediocrity
   as well as foreignness and fringe persons. The paradox reveals itself at times to individuals, then makes
-  them forget so as to preserve their sanity for them to live within today's means. 
+  them forget so as to preserve their sanity for them to live within today's means.
+- Historical sectarianism has always proved to be the greatest impediment to shared enjoyment of social
+  and technological changes. The internet has become an indisputable cornerstone of informatic distribution.
+  If the internet were a person, it would be psychosocial. It is techno-social, in actuality, and the psychopathy
+  and psychology that so many people say is the internet are actually notions, notions from the human mind. 
