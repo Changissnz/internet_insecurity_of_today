@@ -92,5 +92,5 @@
   their localities (piracy,narcotics, et cetera).
 - Some people are panicking and saying that the breaking point is near with all this technologies. There are reports of "hearing voices", a
   feat of engineering that has already been accomplished (long-range acoustic devices, radio technologies,hearing aids). These mechanisms
-  can and have been weaponized, and some people became so broke by it that they are now contemplating walking up to the threat actors to shoot
-  or hack their face off. 
+  can and have been weaponized, and some people became so broke by tolerating the affliction that they are now contemplating walking up
+  to the threat actors to shoot or hack their face off, a low-tech solution.  
