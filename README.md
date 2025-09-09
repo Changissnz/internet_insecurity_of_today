@@ -74,3 +74,5 @@
 - As the industrial rust seeps deeper into Internet 2.0, the echoes of prior calls for change return home from Heaven to live
   in the hearts of human beings in ways so variable that some take the opportunity to portray these forces in mystical and
   mysterious ways.  
+- Some people have started color-coding their internet domains to declare their allegiance (i.e. yellow gangs, red hatters, blue
+  lights) in what appears to be competition. 
