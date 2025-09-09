@@ -76,4 +76,4 @@
   mysterious ways.  
 - Some people have started color-coding their internet domains to declare their allegiances (i.e. yellow gangs, red hatters, blue
   lights) in what appears to be fair competition on a good day. Everyone knows how days are. Good days and bad days. Waiting for the day.
-  Counting the days. So the fair competition could turn epic by the honesty of narrators (whites and greys). 
+  Counting the days. So the fair competition could turn epic by the honesty of narrators (white tails and grey mirrors). 
