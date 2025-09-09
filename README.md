@@ -82,7 +82,8 @@
   against this model become about the vitality. 
 - The presumptuous arrogance remains metaphorically seared onto the foreheads of some of these peoples, lost in the land before time but
   somehow independently reaching the conclusions of their knowing being better via their internet discoveries.
-- People have lives. There is the internet, with all the capital and dollies and "artist" types on display like a 24-hour pony show.
-  Piggybacking schemes (the labor/accreditation alternative scheme to pyramid schemes) should be anticipated, based on the realities of
-  able-bodied and able-minded statistics. Expect recurring questions of baseless or fallacious nature to impact the lives of certain individuals.
-  Expect advanced persistent threats to show themselves in new ways that are not only for educational/intellectual purposes. 
+- People have lives. There is the internet, with all the capital and dollies and "artist" types on display (and in the backroom)
+  like a 24-hour pony show. Piggybacking schemes (the labor/accreditation alternative scheme to pyramid schemes) should be anticipated,
+  based on the realities of able-bodied and able-minded statistics. Expect recurring questions of baseless or fallacious nature to impact
+  the lives of certain individuals. Expect advanced persistent threats to show themselves in new ways that are not only for
+  educational/intellectual purposes. 
