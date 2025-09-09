@@ -88,3 +88,5 @@
   the lives of certain individuals. Expect advanced persistent threats to show themselves in new ways that are not only for
   educational/intellectual purposes. Obscurantistic culture has re-emerged as the norm in Western media, clearly started as a reactionary
   response to BRICS aggression. 
+- The internet is global. Chances are there are still issues for any individual, despite their affluence, that they have to deal with in
+  their localities (piracy,narcotics, et cetera). 
