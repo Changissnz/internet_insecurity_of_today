@@ -96,4 +96,4 @@
   to the threat actors to shoot or hack their face off, a low-tech solution.
 - The individual STEM professional is wise to not put faith in particular factions of the American Democratic Party, which is looking a
   little too colorful for there not to be questions about the rain that produced the rainbow. For insurance, take it
-  a step further to really turn backs on the hogstains that cannot eat pork (because they're not cannibals). 
+  a step further to really turn backs on the hogstains claiming all the fields and mansions (the same ones that cannot eat pork because they're not cannibals). 
