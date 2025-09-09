@@ -97,4 +97,7 @@
 - The individual STEM professional is wise to not put faith in particular factions of the American Democratic Party, which is looking a
   little too colorful for there not to be questions about the rain that produced the rainbow. For insurance, take it
   a step further by really turning backs on the hogstains claiming all the fields and mansions (the same ones that cannot eat
-  pork because they're not cannibals). 
+  pork because they're not cannibals).
+- There are a lot of struggling professionals, especially those that are not mass consumption marketers, in the US since
+  2008 (debatable). If the questions become too puzzling, just think of Russia-Ukraine and Chinese prostitutization of the free mind
+  and market. 
