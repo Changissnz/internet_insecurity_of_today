@@ -94,5 +94,6 @@
   feat of engineering that has already been accomplished (long-range acoustic devices, radio technologies,hearing aids). These mechanisms
   can and have been weaponized, and some people became so broke by tolerating the affliction that they are now contemplating walking up
   to the threat actors to shoot or hack their face off, a low-tech solution.
-- The individual STEM professional is wise to not put faith, to really turn their backs on particular factions of the American Democratic Party,
-  which is looking a little too colorful for there not to be questions about the rain that produced the rainbow. 
+- The individual STEM professional is wise to not put faith in particular factions of the American Democratic Party, which is looking a
+  little too colorful for there not to be questions about the rain that produced the rainbow. For insurance, take it
+  a step further to really turn their backs on the hogstains that cannot eat pork (because they're not cannibals). 
