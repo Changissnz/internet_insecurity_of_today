@@ -76,4 +76,7 @@
   mysterious ways.  
 - Some people have started color-coding their internet domains to declare their allegiances (i.e. yellow gangs, red hatters, blue
   lights) in what appears to be fair competition on a good day. Everyone knows how days are. Good days and bad days. Waiting for the day.
-  Counting the days. So the fair competition could turn epic by the honesty of narrators (white tails and grey mirrors). 
+  Counting the days. So the fair competition could turn epic by the honesty of narrators (white tails and grey mirrors). Onlookers,
+  restrained by some type of way, have reacted by sounding the alarm about the growing trend of ultra-multi-nationalism. Some of these
+  onlookers have further suggested that the world go back to the original model for transparency: clear or opaque grey. But the outcries
+  against this model become about the vitality. 
