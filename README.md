@@ -80,5 +80,5 @@
   restrained by some type of way, have reacted by sounding the alarm about the growing trend of ultra-multi-nationalism. Some of these
   onlookers have further suggested that the world go back to the original model for transparency: clear or opaque grey. But the outcries
   against this model become about the vitality. 
-- The presumptuous arrogance remains metaphorically seared onto the foreheads of those, lost in the land before time and somehow independently
-  reached their conclusions of their knowing being better via their internet discoveries.
+- The presumptuous arrogance remains metaphorically seared onto the foreheads of some of these peoples, lost in the land before time but
+  somehow independently reaching the conclusions of their knowing being better via their internet discoveries.
