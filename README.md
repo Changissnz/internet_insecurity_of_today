@@ -103,4 +103,6 @@
   prostitutization of the free mind and market.
 - The offensive nature of man, coupled with women's logical dishonesty, is why there are issues agreeing on what Internet 3.0 should be. A separate
   Russian internet? Check. A separate Chinese internet? Check. An exclusive Catholic internet? Who knows? The technology is there (well, at least the
-  capital from blockchain). 
+  capital from blockchain).
+- There is no easy way forward. Food supply and distribution cannot be taken for granted, for instance. Futuristic technologies can be difficult to scale
+  or may be impractical to use. The internet is a zenith of a high-tech ecosystem, and an expensive one at that (see data center power usage). 
