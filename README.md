@@ -105,4 +105,5 @@
   Russian internet? Check. A separate Chinese internet? Check. An exclusive Catholic internet? Who knows? The technology is there (well, at least the
   capital from blockchain).
 - There is no easy way forward. Food supply and distribution cannot be taken for granted, for instance. Futuristic technologies can be difficult to scale
-  or may be impractical to use. The internet is a zenith of a high-tech ecosystem, and an expensive one at that (see data center power usage). 
+  or may be impractical to use, despite the dedication towards perfecting them. The internet is a zenith of a high-tech ecosystem, and an expensive one
+  at that (see data center power usage). 
