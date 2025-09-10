@@ -113,3 +113,5 @@
   to everyone else in the household, day in day out. Abusive situations, tolerated for years on end. Foreign military brats, bastard royals, state-sponsored
   murderers by mouth or their own hand; these are the characters let in, and the little ones escaping the sun's hell are the ones that get pushed around.
   That's how asylum laws work. There's always a little scorn, by default, for foreign pride (historically).
+- It's still a very common strategy to play weak and vulnerable, even in today's internet age of self-education and self-empowerment. The common sequence:
+  play weak, ask the right questions, get in, get out, dump/destroy. 
