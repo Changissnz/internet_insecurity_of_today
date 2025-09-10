@@ -106,4 +106,8 @@
   capital from blockchain).
 - There is no easy way forward. Food supply and distribution cannot be taken for granted, for instance. Futuristic technologies can be difficult to scale
   or may be impractical to use, despite the dedication towards perfecting them. The internet is a zenith of a high-tech ecosystem, and an expensive one
-  at that (see data center power usage). 
+  at that (see data center power usage).
+- It's only right to take a strong hard stance on immigration, and this is not only about the equity/equality. Think about how irrational it is to blindly
+  let the offshoots from other nations to come "settle in America" (drive out nationals, rule the populace). Even if there is no megalomania from the heads
+  of households, imagine that some of the nastiest hags (women) do nothing but talk shit to everyone else in the household, day in day out. Abusive situations,
+  tolerated for years on end. Foreign military brats, bastard royals, state-sponsored murderers by mouth or their own hand. 
