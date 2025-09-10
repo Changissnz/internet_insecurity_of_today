@@ -112,4 +112,4 @@
   there is no megalomania from the heads of households, imagine that some of the nastiest hags (women) do nothing but talk shit to everyone else in the
   household, day in day out. Abusive situations, tolerated for years on end. Foreign military brats, bastard royals, state-sponsored murderers by mouth
   or their own hand; these are the characters let in, and the little ones escaping the sun's hell are the ones that get pushed around. That's how asylum
-  laws work.
+  laws work. There's always a little scorn, by default, for foreign pride (historically).
