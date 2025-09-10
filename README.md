@@ -100,4 +100,7 @@
   pork because they're not cannibals).
 - There are a lot of struggling professionals, especially those that are not mass consumption marketers, in the US since
   2008 (debatable). If the questions become too puzzling, just think of Russia-Ukraine (Slavic chemical/digital/arms market) and Chinese
-  prostitutization of the free mind and market. 
+  prostitutization of the free mind and market.
+- The offensive nature of man, coupled with women's logical dishonesty, is why there are issues agreeing on what Internet 3.0 is. A separate
+  Rusian internet? Check. A separate Chinese internet? An exclusive Catholic internet? Who knows? The technology is there (well, at least the
+  capital from blockchain). 
