@@ -129,4 +129,4 @@
   policy. Eastern Europe has been a hot region, politically, since 2014 . Similar arrangements occur. The folks get imported into the USA and get set up with
   "like-minded" and similar-looking peoples. The more STEM degrees they have, the higher the chance they can work at FAANG or Wall Street. Last but not least, given
   how events have been transpiring, many Americans will be intoduced to the Filipinovich persona. The Filipinovich persona is mixed in allegiance and ill-refined
-  for specialty work, yet they serve as an official ally of the USA whilst being a fentanyl partner with China and arms runner with Central and Latin America.
+  for specialty work, yet they serve as an official ally of the USA whilst being a fentanyl partner with China and arms runner for Central and Latin America.
