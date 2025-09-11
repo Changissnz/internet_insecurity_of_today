@@ -124,7 +124,7 @@
 - Expect geopolitical concerns to continually get imported into the USA under liberal trade agreements, the liberalism showcasing itself by the effects of the
   "invisible hand" organizing people based on perceived ethno-cultural similarities. The logic is there can be no rainbow if all the colors can freely mix.
   For example, a Burmese immigrant family gets imported into the USA. Then a Vietnamese guy that cannot find a worthwhile occupation has to tutor the little children
-  under arrangements of a church. But the British guy on the streets needs the job more than the Vietnamese guy. Who gets the job? The Vietnamese guy. Who runs the
-  streets? The British guy. Dynamics like these do not seem fair from a naive perspective, but that's just the common sequence of events in diversity and labor
+  under arrangements of a church. But the British guy on the streets needs the job more than the Vietnamese guy does. Who gets the job? The Vietnamese guy. Who runs
+  the streets? The British guy. Dynamics like these do not seem fair from a naive perspective, but that's just the common sequence of events in diversity and labor
   policy. Eastern Europe has been a hot region since 2014. Similar arrangements occur. The folks get imported into the USA and get set up with "like-minded" and
   similar-looking peoples. The more STEM degrees they have, the higher the chance they can work at FAANG or Wall Street.
