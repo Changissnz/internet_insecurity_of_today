@@ -118,6 +118,7 @@
 - As any knowledgeable person is aware at this time (2025), the USA no longer has a Triple A credit rating. In the business sense, there were failed ventures,
   the darleanas (the "this is my world, my vision" people), the prinslaktimos (self-claimed princelings disguised in different shades of wealth and poverty) that
   some say are the culprits. Others point to broader trends at play, such as breaking word (an offense in business etiquette), possibly encouraged by worsening
-  labor organization in some areas. Lower credit translates to lower maximum borrowing threshold, weaker purchasing power parity. There might not be enough time
-  to enjoy the preent and emerging developments of the internet.
+  labor organization in some areas. Lower credit translates to lower maximum borrowing threshold and weaker purchasing power parity. The American brand may be
+  slowly getting casted into the muck of questions. Furthermore, there might not be enough time to enjoy the preent and emerging developments of the internet in
+  general. 
   
