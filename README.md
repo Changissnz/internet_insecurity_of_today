@@ -121,4 +121,9 @@
   labor organization in some areas. Lower credit translates to lower maximum borrowing threshold and weaker purchasing power parity. The American brand may be
   slowly getting cast into the muck of lesser questions. Furthermore, there might not be enough time to enjoy the present and emerging developments of the internet
   in general, based on how the division of labor impacts the individual. 
-  
+- Expect geopolitical concerns to continually get imported into the USA under liberal trade agreements, the liberalism showcasing itself by the effects of the
+  "invisible hand" organizing people based on perceived ethno-cultural similarities. The logic is there can be no rainbow if all the colors can freely mix.
+  For example, a Burmese immigrant family gets imported into the USA. Then a Vietnamese guy that cannot find a worthwhile occupation has to tutor the little children
+  under arrangements of a church. But the British guy on the streets needs the job more than the Vietnamese guy. Who gets the job? The Vietnamese guy. Who runs the
+  streets? The British guy. Dynamics like these do not seem fair from a naive perspective, but that's just the common sequence of events in diversity and labor
+  policy. 
