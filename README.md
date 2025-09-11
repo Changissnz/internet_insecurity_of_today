@@ -119,6 +119,6 @@
   the darleanas (the "this is my world, my vision" people), the prinslaktimos (self-claimed princelings disguised in different shades of wealth and poverty) that
   some say are the culprits. Others point to broader trends at play, such as breaking word (an offense in business etiquette), possibly encouraged by worsening
   labor organization in some areas. Lower credit translates to lower maximum borrowing threshold and weaker purchasing power parity. The American brand may be
-  slowly getting cast into the muck of lesser questions. Furthermore, there might not be enough time to enjoy the preent and emerging developments of the internet in
-  general. 
+  slowly getting cast into the muck of lesser questions. Furthermore, there might not be enough time to enjoy the present and emerging developments of the internet
+  in general, based on how the division of labor impacts the individual. 
   
