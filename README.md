@@ -114,4 +114,10 @@
   murderers by mouth or their own hand; these are the characters let in, and the little ones escaping the sun's hell are the ones that get pushed around.
   That's how asylum laws work. There's always a little scorn, by default, for foreign pride (historically).
 - It's still a very common strategy to play weak and vulnerable, even in today's internet age of self-education and self-empowerment. The common sequence:
-  play weak, ask the right questions, get in, get out, dump/destroy. 
+  play weak, ask the right questions, get in, get out, dump/destroy.
+- As any knowledgeable person is aware at this time (2025), the USA no longer has a Triple A credit rating. In the business sense, there were failed ventures,
+  the darleanas (the "this is my world, my vision" people), the prinslaktimos (self-claimed princelings disguised different shades of wealth and poverty) that
+  some say are the culprits. Others point to broader trends at play, such as breaking word (an offense in business etiquette), possibly encouraged by worsening
+  labor organization in some areas. Lower credit translates to lower maximum borrowing threshold, weaker purchasing power parity. There might not be enough time
+  to enjoy the preent and emerging developments of the internet.
+  
