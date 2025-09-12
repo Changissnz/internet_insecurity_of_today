@@ -131,4 +131,7 @@
   how events have been transpiring, many Americans will be introduced to the Filipinovich persona. The Filipinovich persona is mixed in allegiance and ill-refined
   for specialty work, yet they serve as an official ally of the USA whilst being a fentanyl partner with China and arms runner for Central and Latin America.
 - Watch out for Ireland in these next few years; it should make for an interesting case of financial security during industrial re-arrangements, spearheaded by
-  the "A.I. excuse". Ireland has been raking in money since the 2020 COVID-19 pandemic, as a gentle reminder. 
+  the "A.I. excuse". Ireland has been raking in money since the 2020 COVID-19 pandemic, as a gentle reminder.
+- Diversification of wealth standardization (de-dollarization) has accelerated alongside the gradual acceptance of Bitcoin and other crypto-currencies into market
+  transactions. Brazil's NuBank, an entirely digital bank, is an example of banking innovation that no longer is confined to physical space. Forms and methods of
+  bartering are sure to be peculiar to convention in the midst of decentralized forms of wealth. 
