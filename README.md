@@ -136,5 +136,5 @@
   transactions. Brazil's NuBank, an entirely digital bank, is an example of banking innovation that no longer is confined to physical space. Forms and methods of
   bartering are sure to be peculiar to convention in the midst of decentralized forms of wealth.
 - Virtually every person under "guidance society" discovers, sooner or later, that no one can do anything right for them or be square with them in the beginning.
-  These patterns fall under the engineered obsolescence movement spearheaded by Facebook & Company (now Meta Corporation). Every ounce of happiness squeezed, it's
-  as if these black holes will just go away on the orders of the Count. 
+  These patterns' rationale is related to the engineered obsolescence movement spearheaded by Facebook & Company (now Meta Corporation). Every ounce of happiness
+  squeezed, it's as if these black holes will just go away on the orders of the Count. 
