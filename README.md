@@ -1,5 +1,4 @@
 # internet_insecurity_of_today
-## PENDING
 
 - progressive electronic metaconstruct as product from the unifiable body of
   technology designs 
@@ -138,5 +137,5 @@
 - Virtually every person under "guidance society" discovers, sooner or later, that no one can do anything right for them or be square with them in the beginning.
   These patterns' rationale is related to the engineered obsolescence movement spearheaded by Facebook & Company (now Meta Corporation). Every ounce of happiness
   squeezed, it's as if these black holes will just go away on the orders of the Count.
-- The moral some of these leaders offer: it's not over until the blood feud yields blood. What internet is there, when its makers and consumers, family and friends,
-  are both drowning in their own blood. 
+- The moral some of these leaders offer: it's not over until there is a blood feud that yields blood. What internet is there, when its makers and consumers, family
+  and friends, are both drowning in their own blood? 
