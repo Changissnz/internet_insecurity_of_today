@@ -138,4 +138,4 @@
   These patterns' rationale is related to the engineered obsolescence movement spearheaded by Facebook & Company (now Meta Corporation). Every ounce of happiness
   squeezed, it's as if these black holes will just go away on the orders of the Count.
 - The moral some of these leaders offer: it's not over until there is a blood feud that yields blood. What internet is there, when its makers and consumers, family
-  and friends, are both drowning in their own blood? 
+  and friends, are all drowning in their own blood? 
